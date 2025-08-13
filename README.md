@@ -1,0 +1,2 @@
+# IdeaPad_5_2in1_Copilot_GDN_1_160x600
+IdeaPad_5_2in1_Copilot_GDN_1_160x600
